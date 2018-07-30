@@ -1,1 +1,3 @@
 # Oshima Island
+
+[home](index)
