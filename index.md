@@ -1,5 +1,6 @@
 # Iwakuni Fishing
 ###  By Nick Kling
+Check out my [Bio](Kayakfisher.bio.md) 
 ---
 I live in [Iwakuni, Japan](https://www.mcasiwakuni.marines.mil/) and I enjoy fishing
 ![Amberjack](https://www.igfa.org/Images/SpeciesID_Images/BWBuri.png)
