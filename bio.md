@@ -1,7 +1,7 @@
 # Nick Kling
 ## Experience
-### I like to kayak
-![kayak](kayak.jpg) "Nice Kayak"  
+### I like to kayak  
+![kayak]() "Nice Kayak"  
 
 [home](index)
 
