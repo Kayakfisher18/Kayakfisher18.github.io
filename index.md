@@ -4,7 +4,7 @@
 
 Check out my [Bio](bio)  
 
-Here is a link to my topic page on Oshema Island  
+Here is a link to my topic page on [Oshima Island](topic)  
 
 ---
 I live in [Iwakuni, Japan](https://www.mcasiwakuni.marines.mil/) and I enjoy fishing
