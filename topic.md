@@ -3,7 +3,7 @@
 The island is 138.17 sqkm  
 Located 30km sout of MCAS Iwakuni  
 The waters around Oshima offer great fishing  
-![charter boat out of Oshima](https://www.japantimes.co.jp/wp-content/uploads/2018/05/n-tour-a-20180524-870x553.jpg)  
+![charter boat out of Oshima](https://a2.cdn.japantravel.com/photo/3830-23947/800/chiba-ohara-chiba-sports-fishing-23947.jpg)    
 
 ![nice size amberjack](https://media.gettyimages.com/photos/photo-taken-feb-25-shows-devin-mackin-a-21yearold-marine-in-a-tour-picture-id960045180)  
 
